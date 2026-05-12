@@ -2,6 +2,12 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-05-12 23:15 IR
+- 🎬 [I_Froze_Pragmata’s_Recommended_GPU.mp4](https://github.com/mohammadjabari003-dev/downloader/raw/main/dl/I_Froze_Pragmata%E2%80%99s_Recommended_GPU.mp4) `52.7MB`
+
+---
+
+
 ### 📅 2026-05-09 14:22 IR
 - 🎬 [I_Controlled_EVERYONE_To_Do_My_Dirty_Work_🎭🔪_#smart_#amongus_#kira_#story_#anime_#among_#us_#kudo.mp4](https://github.com/mohammadjabari003-dev/downloader/raw/main/dl/I_Controlled_EVERYONE_To_Do_My_Dirty_Work_%F0%9F%8E%AD%F0%9F%94%AA_%23smart_%23amongus_%23kira_%23story_%23anime_%23among_%23us_%23kudo.mp4) `13.4MB`
 
